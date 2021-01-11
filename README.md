@@ -1,2 +1,2 @@
-# kiku.ai
-https://kiku.ai
+# eventyay.de
+https:/eventyay.de
